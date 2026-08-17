@@ -13,4 +13,3 @@ This summer I was able to travel to Joshua Tree with my family and see a lot of 
 
 ## Photo Collage
 
-![]CSP%2010%20Image%20Collage.png)
