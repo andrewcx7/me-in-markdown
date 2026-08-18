@@ -9,7 +9,7 @@ This summer I was able to travel to Joshua Tree with my family and see a lot of 
 
 ## Spotify Playlist
 
-[**<strong style="color: #bec5bf"> <u> I don't listen to music so just songs I've heard recently </u> </strong>**](https://www.google.com)  
+[**<strong style="color: #bec5bf"> <u> I don't listen to music so just songs I've heard recently </u> </strong>**](https://open.spotify.com/playlist/6sAuOvVR0X78KRCCjrIVkU?si=94986da4da934564&pt=a9f3bc7cbdf74156fec5ac9d2de2eb3f)  
 
 ## Photo Collage
 
